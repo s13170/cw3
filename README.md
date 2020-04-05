@@ -1,1 +1,3 @@
-# cw3
+Jarosław Szeja
+17c
+s13170
